@@ -1,6 +1,6 @@
 # Chocolate Chip Cookies
 
-Makes 36 cookies
+Makes 24 cookies
 
 ## Ingredients
 - 1 cup butter
