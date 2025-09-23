@@ -6,7 +6,7 @@ Servings: 6 hot dogs
 - Buns
 - Ketchup
 - Mustard
-- Relish
+- Chili
 
 ## Instructions
 1. Heat a grill on high

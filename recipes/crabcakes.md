@@ -2,7 +2,7 @@
 
 ## Ingredients
 - Lump crab meat
-- mayo
+- Duke's mayo
 - mustard
 - cracker crumbs
 - old bay
